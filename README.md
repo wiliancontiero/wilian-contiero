@@ -2,4 +2,4 @@
 - 👀 Estou cursando alura  
 - 🌱  Estudante 2 EM
 
-![o](https://media1.tenor.com/m/ll9grA6WekcAAAAd/cool-fun.gif)
+[](https://tenor.com/pt-BR/view/neymar-gif-270090280)
